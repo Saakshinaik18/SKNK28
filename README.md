@@ -64,9 +64,9 @@ Currently seeking **Data Analyst / Data Analyst Intern opportunities** where I c
 
 ## 🤝 Connect With Me
 
-📧 Email: [Saakshinaik18@gmail.com](mailto:Saakshinaik18@gmail.com)
-💼 LinkedIn: (Add your LinkedIn link)
-💻 GitHub: (Add your GitHub link)
+📧 Email: [Saakshinaik18@gmail.com](mailto:Saakshinaik18@gmail.com)]
+💼 LinkedIn: [(https://www.linkedin.com/in/saakshi-naik-97a7792a0/)]
+💻 GitHub:[(https://github.com/Saakshinaik18)]
 
 ---
 
